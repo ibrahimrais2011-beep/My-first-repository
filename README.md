@@ -1,1 +1,1 @@
-# My-first-repository
+ When individuals confront prejudice or systemic barriers, they are often forced to develop strong coping mechanisms, critical awareness, and emotional endurance to navigate an unfair environment. In many cases, shared experiences of discrimination also unite communities, inspiring collective strength, mutual support, and powerful movements for social justice and equality. However, this strength comes from the courage and perseverance of the people resisting racism
